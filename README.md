@@ -2,7 +2,7 @@
 - 👀 I’m interested in LEAGUE OF LEGENDS
 - 🌱 I’m currently learning HOW TO SCAM RIOT
 - 💞️ I’m looking to collaborate on BEATING RIOT GAMES
-- 📫 How to reach me Mount Hua Sword
+- 📫 How to reach: Mount Hua Sword#SAINT
 
 <!---
 beggarsect/beggarsect is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
